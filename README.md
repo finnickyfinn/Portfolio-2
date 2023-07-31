@@ -1,2 +1,2 @@
 # Portfolio-2
-Sometimes, the beginning is the hardest
+Here is a portfolio that contains all of my acomplishments so far!
